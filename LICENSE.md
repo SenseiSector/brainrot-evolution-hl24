@@ -1,4 +1,4 @@
-
+Experience brainrot evolution like never before with brainrot evolution Scripts instant, the #1 Script. Includes auto-collect and one-hit kill for
 
 
 
